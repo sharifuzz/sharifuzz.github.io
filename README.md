@@ -1,5 +1,5 @@
 <p align="center">
-  <img src="https://your-image-url-here.com" alt="Sharifuz - Digital Marketer">
+  <img src="https://yt3.googleusercontent.com/qd846dYu1aP7hdVwHeN2NmeVY6TUzWFvCs0MryKS24iF_ulBEFmh944V5VnSYNZOp3Uo95MR=s176-c-k-c0x00ffffff-no-rj" alt="Sharifuz - Digital Marketer">
 </p>
 
 # 🚀 Hello World! I'm Sharifuz 🌍
