@@ -28,9 +28,9 @@ Do you dream of catapulting your business into the digital stratosphere? Look no
 
 ## Let's Create Magic!
 
-💬 **Coffee Chat?**: I'm all ears for your digital dreams and challenges. Reach out at sharifuz118@gmail.com
+💬 **Coffee Chat?**: I'm all ears for your digital dreams and challenges. Reach out at [ sharifuz118@gmail.com ]
 
-🔗 **LinkedIn**: Let's connect professionally on https://www.linkedin.com/in/sharifuz/
+🔗 **LinkedIn**: Let's connect professionally on [ https://www.linkedin.com/in/sharifuz/ ]
 
 
 ## Let's Transform Your Digital Journey!
